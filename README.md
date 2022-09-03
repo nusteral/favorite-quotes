@@ -1,3 +1,3 @@
-*First comes thought; then organization of that thought, into ideas and plans; then transformation of those plans into reality. The beginning, as you will observe, is in your imagination.*
+*The key to transforming our hearts and minds is to have an understanding of how our thoughts and emotions work.*
 
-— Napoleon Hill
+— Dalai Lama
