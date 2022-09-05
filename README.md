@@ -1,3 +1,3 @@
-*The key to transforming our hearts and minds is to have an understanding of how our thoughts and emotions work.*
+*To give oneself earnestly to the duties due to men, and, while respecting spiritual beings, to keep aloof from them, may be called wisdom.*
 
-— Dalai Lama
+— Confucius
