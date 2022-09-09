@@ -1,3 +1,3 @@
-*They say that time changes things, but you actually have to change them yourself.*
+*America's freedom of religion, and freedom from religion, offers every wisdom tradition an opportunity to address our soul-deep needs: Christianity, Judaism, Islam, Buddhism, Hinduism, secular humanism, agnosticism and atheism among others.*
 
-— Andy Warhol
+— Parker Palmer
