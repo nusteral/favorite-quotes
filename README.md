@@ -1,3 +1,3 @@
-*I had three chairs in my house; one for solitude, two for friendship, three for society.*
+*The first step to getting the things you want out of life is this: decide what you want.*
 
-— Henry David Thoreau
+— Ben Stein
