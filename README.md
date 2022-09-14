@@ -1,3 +1,3 @@
-*The first step to getting the things you want out of life is this: decide what you want.*
+*To keep the body in good health is a duty... otherwise we shall not be able to keep our mind strong and clear.*
 
-— Ben Stein
+— Buddha
