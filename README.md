@@ -1,3 +1,3 @@
-*To keep the body in good health is a duty... otherwise we shall not be able to keep our mind strong and clear.*
+*A true friend freely, advises justly, assists readily, adventures boldly, takes all patiently, defends courageously, and continues a friend unchangeably.*
 
-— Buddha
+— William C. Menninger
