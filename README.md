@@ -1,3 +1,3 @@
-*A true friend freely, advises justly, assists readily, adventures boldly, takes all patiently, defends courageously, and continues a friend unchangeably.*
+*Kindness is more important than wisdom, and the recognition of this is the beginning of wisdom.*
 
-— William C. Menninger
+— Theodore Isaac Rubin
