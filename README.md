@@ -1,3 +1,3 @@
-*Kindness is more important than wisdom, and the recognition of this is the beginning of wisdom.*
+*Always be mindful of the kindness and not the faults of others.*
 
-— Theodore Isaac Rubin
+— Buddha
