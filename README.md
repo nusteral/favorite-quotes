@@ -1,3 +1,3 @@
-*Always be mindful of the kindness and not the faults of others.*
+*Whatever happens, take responsibility.*
 
-— Buddha
+— Tony Robbins
