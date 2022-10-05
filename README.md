@@ -1,3 +1,3 @@
-*Whatever happens, take responsibility.*
+*Always bear in mind that your own resolution to succeed is more important than any one thing.*
 
-— Tony Robbins
+— Abraham Lincoln
