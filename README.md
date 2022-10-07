@@ -1,3 +1,3 @@
-*Always bear in mind that your own resolution to succeed is more important than any one thing.*
+*Happiness does not come from having much, but from being attached to little.*
 
-— Abraham Lincoln
+— Cheng Yen
