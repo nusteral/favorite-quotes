@@ -1,3 +1,3 @@
-*Happiness does not come from having much, but from being attached to little.*
+*He who angers you conquers you.*
 
-— Cheng Yen
+— Elizabeth Kenny
