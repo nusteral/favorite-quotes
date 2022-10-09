@@ -1,3 +1,3 @@
-*He who angers you conquers you.*
+*Small opportunities are often the beginning of great enterprises.*
 
-— Elizabeth Kenny
+— Demosthenes
