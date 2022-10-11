@@ -1,3 +1,3 @@
-*Small opportunities are often the beginning of great enterprises.*
+*To improve is to change; to be perfect is to change often.*
 
-— Demosthenes
+— Winston Churchill
