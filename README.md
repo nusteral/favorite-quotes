@@ -1,3 +1,3 @@
-*The path to success is to take massive, determined action.*
+*Great acts are made up of small deeds.*
 
-— Tony Robbins
+— Laozi
