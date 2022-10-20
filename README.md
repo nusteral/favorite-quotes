@@ -1,3 +1,3 @@
-*Great acts are made up of small deeds.*
+*Difficulties are things that show a person what they are.*
 
-— Laozi
+— Epictetus
