@@ -1,3 +1,3 @@
-*I prefer to be true to myself, even at the hazard of incurring the ridicule of others, rather than to be false, and to incur my own abhorrence.*
+*I think somehow, we learn who we really are and then live with that decision.*
 
-— Frederick Douglass
+— Eleanor Roosevelt
