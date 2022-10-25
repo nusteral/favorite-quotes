@@ -1,3 +1,3 @@
-*I think somehow, we learn who we really are and then live with that decision.*
+*A thing well said will be wit in all languages.*
 
-— Eleanor Roosevelt
+— John Dryden
