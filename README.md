@@ -1,3 +1,3 @@
-*A thing well said will be wit in all languages.*
+*Value your friendship. Value your relationships.*
 
-— John Dryden
+— Barbara Bush
