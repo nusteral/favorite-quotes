@@ -1,3 +1,3 @@
-*Value your friendship. Value your relationships.*
+*Government of the people, by the people, for the people, shall not perish from the Earth.*
 
-— Barbara Bush
+— Abraham Lincoln
