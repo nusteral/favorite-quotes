@@ -1,3 +1,3 @@
-*Government of the people, by the people, for the people, shall not perish from the Earth.*
+*A good hockey player plays where the puck is. A great hockey player plays where the puck is going to be.*
 
-— Abraham Lincoln
+— Wayne Gretzky
