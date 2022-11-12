@@ -1,3 +1,3 @@
-*A good hockey player plays where the puck is. A great hockey player plays where the puck is going to be.*
+*It is easier to live through someone else than to become complete yourself.*
 
-— Wayne Gretzky
+— Betty Friedan
