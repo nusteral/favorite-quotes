@@ -1,3 +1,3 @@
-*It is easier to live through someone else than to become complete yourself.*
+*I never see what has been done; I only see what remains to be done.*
 
-— Betty Friedan
+— Marie Curie
