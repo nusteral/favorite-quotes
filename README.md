@@ -1,3 +1,3 @@
-*I never see what has been done; I only see what remains to be done.*
+*You know you're in love when you can't fall asleep because reality is finally better than your dreams.*
 
-— Marie Curie
+— Dr. Seuss
