@@ -1,3 +1,3 @@
-*You know you're in love when you can't fall asleep because reality is finally better than your dreams.*
+*Imagination is the living power and prime agent of all human perception.*
 
-— Dr. Seuss
+— Samuel Taylor Coleridge
