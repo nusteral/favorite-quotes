@@ -1,3 +1,3 @@
-*Imagination is the living power and prime agent of all human perception.*
+*Love is a serious mental disease.*
 
-— Samuel Taylor Coleridge
+— Plato
