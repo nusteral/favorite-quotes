@@ -1,3 +1,3 @@
-*The wisest men follow their own direction.*
+*Always remember that you are absolutely unique. Just like everyone else.*
 
-— Euripides
+— Margaret Mead
