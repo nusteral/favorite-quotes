@@ -1,3 +1,3 @@
-*Always remember that you are absolutely unique. Just like everyone else.*
+*We love life, not because we are used to living but because we are used to loving.*
 
-— Margaret Mead
+— Friedrich Nietzsche
