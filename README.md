@@ -1,3 +1,3 @@
-*Courage is going from failure to failure without losing enthusiasm.*
+*Happiness is not in the mere possession of money; it lies in the joy of achievement, in the thrill of creative effort.*
 
-— Winston Churchill
+— Franklin D. Roosevelt
