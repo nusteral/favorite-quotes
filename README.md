@@ -1,3 +1,3 @@
-*Technology is teaching us to be human again.*
+*Well begun is half done.*
 
-— Simon Mainwaring
+— Aristotle
