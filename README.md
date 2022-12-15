@@ -1,3 +1,3 @@
-*I hope our wisdom will grow with our power, and teach us, that the less we use our power the greater it will be.*
+*O, what a tangled web we weave when first we practice to deceive!*
 
-— Thomas Jefferson
+— Walter Scott
