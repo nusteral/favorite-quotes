@@ -1,3 +1,3 @@
-*O, what a tangled web we weave when first we practice to deceive!*
+*Do not go where the path may lead, go instead where there is no path and leave a trail.*
 
-— Walter Scott
+— Ralph Waldo Emerson
