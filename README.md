@@ -1,3 +1,3 @@
-*Do not go where the path may lead, go instead where there is no path and leave a trail.*
+*The lure of the distant and the difficult is deceptive. The great opportunity is where you are.*
 
-— Ralph Waldo Emerson
+— John Burroughs
